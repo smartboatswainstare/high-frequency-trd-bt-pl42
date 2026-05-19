@@ -1,4 +1,4 @@
-# 
+# best bot de negociação perpétua plugins é o melhor bot de negociação perpétua plugins com provisão de liquidez e trailing-stop. Seguro, confiável e otimizado para estratégias de
 
 
 
